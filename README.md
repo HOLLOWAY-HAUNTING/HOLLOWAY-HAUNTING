@@ -1,4 +1,4 @@
-## Hi there 👋
+## will edit later =~="... but as a sidenote i call myself yatta n shelly irl as a joke, but if ur uncomfy ur free to block me! socials in rentry ^_^
 
 <!--
 **HOLLOWAY-HAUNTING/HOLLOWAY-HAUNTING** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
