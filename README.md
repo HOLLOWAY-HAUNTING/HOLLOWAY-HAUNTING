@@ -1,4 +1,5 @@
-## will edit later =~="... but as a sidenote i call myself yatta n shelly irl as a joke, but if ur uncomfy ur free to block me! socials in rentry ^_^
+## will edit later =~="... RENTRY IS SLIGHTLY OUTDATED, STRAWPAGE IS MORE UP TO DATE BUT STILL A WIP.
+i like phineas and ferb (+ mml / h&g) dandys world, animal hospital and warrior cats :) please oomf me up if u like those 
 
 <!--
 **HOLLOWAY-HAUNTING/HOLLOWAY-HAUNTING** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
