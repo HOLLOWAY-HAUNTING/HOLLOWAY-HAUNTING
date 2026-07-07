@@ -1,5 +1,5 @@
 ## will edit later =~="... RENTRY IS SLIGHTLY OUTDATED, STRAWPAGE IS MORE UP TO DATE BUT STILL A WIP. NO I DONT SAY ME IRL ANYMORE
-i like phineas and ferb (+ mml / h&g) dandys world, animal hospital and warrior cats :) please oomf me up if u like those, just know im an adult
+i like phineas and ferb (+ mml / h&g) dandys world, animal hospital, wings of fire and warrior cats :) please oomf me up if u like those, just know im an adult
 
 <!--
 **HOLLOWAY-HAUNTING/HOLLOWAY-HAUNTING** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
